@@ -38,6 +38,6 @@ Passionate about building robust applications across the entire stack and explor
 
 ## 📬 Let's Connect
 💌 **Email**: [celinafeghoul@gmail.com](mailto:celinafeghoul@gmail.com)  
-🔗 **LinkedIn**: [Célina Feghoul](https://www.linkedin.com/in/celina-feghoul-b27b4b36a/)  
+🔗 **LinkedIn**: [Celina Feghoul](https://www.linkedin.com/in/celina-feghoul-b27b4b36a/)  
 
 🚀 *"Technology is my passion - I'm always learning, building, and pushing boundaries!"*  
